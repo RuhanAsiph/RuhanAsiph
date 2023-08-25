@@ -1,3 +1,4 @@
 new bee
 
-https://user-images.githubusercontent.com/26360370/134672173-de5fc6d3-d5ba-4c0f-9aca-db53ba9ab8f0.gif
+![newgiff](https://github.com/RuhanAsiph/RuhanAsiph/assets/26360370/6da10a4d-14c7-4416-b80e-713f52eeb028)
+
